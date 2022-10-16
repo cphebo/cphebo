@@ -3,11 +3,11 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on something
-- 🌱 I’m currently learning something
-- 👯 I’m looking to collaborate on something
-- 🤔 I’m looking for help with something
+- 🔭 I’m currently working on my studies
+- 🌱 I’m currently learning Information Technology
+- 👯 I’m looking to collaborate on a pc build
+- 🤔 I’m looking for help with coding!
 - 💬 Ask me about anything
 - 📫 How to reach me: vaultine@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: if you're happy then you're not sad
+- ⚡ Fun fact: I'm an indoor person.
