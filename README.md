@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on a pc build
 - 🤔 I’m looking for help with coding!
 - 💬 Ask me about anything
-- 📫 How to reach me: vaultine@gmail.com
+- 📫 How to reach me: 001.ambr@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm an indoor person.
